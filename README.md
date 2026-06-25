@@ -1,4 +1,4 @@
-# Hi, I’m Fab❗
+# All About Me ⬇️
 
 I’m based in the UK, and I like building things with code. I spend a lot of time on frontend design projects. I’m also interested in other areas of development and learning new coding languages.
 
