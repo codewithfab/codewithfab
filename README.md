@@ -10,4 +10,5 @@ I enjoy making things that are simple, and practical. I also really enjoy promot
 
 ## Contact
 
-Im working on it...
+Instagram - codewithfab
+Email - fabianbusiness@gmail.com - I barely check emails
